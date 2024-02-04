@@ -1,0 +1,1 @@
+Say your friend asks you about a hike you went on. You have to go through a load of photos on your phone to show them which takes alot of time. Instead, you can just go to this app and show them. This is basically a hiking journal.
